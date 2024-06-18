@@ -1,12 +1,13 @@
 # Canva E-books-Welcome to Complete Biology for Cambridge IGCSE
+Complete Biology for Cambridge IGCSE Ebook is an interactive and interesting e-book for students. 
 
 To view storyboard using public view link 
+
 https://www.canva.com/design/DAF-z9wLXSk/2dFNd-CAN_371UroW6kuWg/view?utm_content=DAF-z9wLXSk&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
 To view final prototype using public view link 
-https://www.canva.com/design/DAGDEr68Mc4/xNIJYXncqO8VPSlQDZrU-A/view?utm_content=DAGDEr68Mc4&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
-Complete Biology for Cambridge IGCSE is an interactive and comprehensive biology e-book for students. 
+https://www.canva.com/design/DAGDEr68Mc4/xNIJYXncqO8VPSlQDZrU-A/view?utm_content=DAGDEr68Mc4&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
 Here are some screenshot of the E-book in Canva: 
 
