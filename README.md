@@ -3,4 +3,6 @@
 # To view using public view link 
 https://www.canva.com/design/DAGDEr68Mc4/xNIJYXncqO8VPSlQDZrU-A/view?utm_content=DAGDEr68Mc4&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
-![Uploading Canva Ebooks 1.png…]()
+Complete Biology for Cambridge IGCSE is an interactive and comprehensive biology e-book for students. 
+
+
